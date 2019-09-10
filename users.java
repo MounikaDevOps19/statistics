@@ -1,1 +1,2 @@
 hi frnds
+gd mng
